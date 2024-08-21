@@ -7,3 +7,4 @@ tugas fisika
 ![image](https://github.com/user-attachments/assets/721cb7e1-e6a9-4fba-9a70-c62bd07fc4a5)
 ![image](https://github.com/user-attachments/assets/bd160c05-c039-4134-b4c7-48e104e73a61)
 ![image](https://github.com/user-attachments/assets/5cec882d-5bda-422a-b3fc-3da44b89a8ac)
+![image](https://github.com/user-attachments/assets/69bcc5b9-4857-4420-be31-00c6a1c68389)
